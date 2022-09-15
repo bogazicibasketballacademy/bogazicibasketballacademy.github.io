@@ -1,2 +1,0 @@
-# bogazicibasketballacademy.github.io
- 
